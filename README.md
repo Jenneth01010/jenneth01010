@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+i have no idea what im working on but im working on something at the moment with a mate ... in the process of learning. hit us up if you wanna join.
+
 <!--
 **Jenneth01010/jenneth01010** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
